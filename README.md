@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HoumesG
+- 👀 I’m interested in AI , Python
+- 🌱 I’m currently learning AI
+- 📫 How to reach me houmesmsk123@gmail.com
